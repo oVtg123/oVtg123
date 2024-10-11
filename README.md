@@ -1,12 +1,19 @@
 ### Dae galera meu nome real é vitor 🇧🇷
 ### jogar jogo é daora 🎮
-### seila 🍕
-### Estudo no Alura 
+### seila 🤡
+### Estudo no Alura 💻
 
 
-![](https://images.app.goo.gl/wAa7NHHFwukdguQw8)
+![](https://media1.tenor.com/m/OEDVXgCclBcAAAAd/pablo-mar%C3%A7al-datena.gif)
 
 
 
 
-![](https://images.app.goo.gl/bNZn3YyQdVUVgwsH9)
+
+
+
+
+
+
+
+![](https://media1.tenor.com/m/yEG23sxXIVQAAAAC/shrek-shrek-meme.gif)
