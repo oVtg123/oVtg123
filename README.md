@@ -1,14 +1,9 @@
 ### Dae galera meu nome real é vitor 🇧🇷
-### jogar jogo é daora 🎮
-### seila 🤡
 ### Estudo no Alura 💻
+### Sou apaixonado por carros 🚗
 
 
-![](https://media1.tenor.com/m/OEDVXgCclBcAAAAd/pablo-mar%C3%A7al-datena.gif)
-
-
-
-
+![](https://media.tenor.com/Wxh0COWmE50AAAAM/good-night.gif)
 
 
 
@@ -16,4 +11,10 @@
 
 
 
-![](https://media1.tenor.com/m/yEG23sxXIVQAAAAC/shrek-shrek-meme.gif)
+
+
+
+
+![](https://media.tenor.com/XRD6GpNu9KQAAAAM/supra-mk4.gif)
+
+### Fiquem com Deus 🙌
